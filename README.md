@@ -23,4 +23,4 @@
 Eu estava tentando fazer minha versão do Pokemon FireRed e agora sou um apaixonado por programação! 
 
 ## Meu Email para contato: 
-- grocha815@gmail.com
+- deletemechannel@gmail.com
